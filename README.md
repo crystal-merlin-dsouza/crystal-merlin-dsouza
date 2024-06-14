@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Crystal Merlin D Souza</h1>
+<h1 align="center">Hi, I'm Crystal Merlin D Souza</h1>
 <h3 align="center">An aspiring web developer / software developer</h3>
 
 - 🌱 I’m currently pursuing **Master of computer applications**
