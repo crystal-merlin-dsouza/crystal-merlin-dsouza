@@ -3,9 +3,9 @@
 
 - 🌱 I’m currently pursuing **Master of computer applications**
 
-- 📫 How to reach me **crystalmerlindsouza@gmail.com**
+- 📫 How to reach me: **crystalmerlindsouza@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SGWLjOXrUloIFG5z8y4PcYPHyVSz7xQc/view?usp=sharing](https://drive.google.com/file/d/1SGWLjOXrUloIFG5z8y4PcYPHyVSz7xQc/view?usp=sharing)
+- 📄 Know about my experiences: [Here's my Resume](https://drive.google.com/file/d/1hOPjlwNVyCal6U5yUotpAYi0XgyKw3LP/view?usp=sharing)
 
 - ⚡ Fun fact: **I'm always up for some lively cricket banter!**
 
